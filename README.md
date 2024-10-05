@@ -93,3 +93,23 @@ GitHub Discussions é um fórum de comunicação colaborativo dentro do GitHub. 
 
 ##
 <div align="center">Feito com 💙 por <a href="https://github.com/elidianaandrade">Eli</a>.</div>
+
+Até a pé nós iremos
+para o que der e vier
+mas o certo é que nós estaremos
+com o Grêmio onde o Grêmio estiver
+
+Cinqüenta anos de glórias
+tens imortal tricolor
+os feitos da tua história
+canta o Rio Grande com amor
+
+Nós como bons torcedores
+sem hesitarmos sequer
+aplaudiremos o Grêmio
+aonde o Grêmio estiver
+
+Lara o craque imortal
+soube seu nome elevar
+hoje com o mesmo ideal
+nós saberemos te honrar
